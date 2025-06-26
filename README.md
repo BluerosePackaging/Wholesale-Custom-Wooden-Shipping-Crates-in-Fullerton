@@ -3,7 +3,7 @@
 Custom wooden shipping crates are essential for protecting heavy, oversized, or fragile items during transportation and storage. Whether you're shipping machinery, electronics, or high-value goods, a custom-built wooden crate offers structural strength, security, and handling flexibility. For businesses in Fullerton with industrial shipping or export needs, buying crates wholesale ensures long-term savings and supply consistency.
 
 ---
-[Explore Our Custom Wooden Crates](https://www.bluerosepackaging.com/product-category/custom-products/custom-wooden-shipping-crates/)
+[Explore Our Custom Wooden Shipping Crates](https://www.bluerosepackaging.com/product-category/custom-products/custom-wooden-shipping-crates/)
 ---
 
 ## Our Custom Crating Solutions
